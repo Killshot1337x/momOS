@@ -1,3 +1,3 @@
 # momOS
-This is me when your mom
+A trash troll site which I made in 15min for the lolz
 URMOMGAY
